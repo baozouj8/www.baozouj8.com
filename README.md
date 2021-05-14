@@ -1,6 +1,6 @@
 ## 发布地址:www.baozouj8.com
 
-![Image](bg.png)
+![Image](bg.jpg)
 ## 1.  [狼友视频](https://move.baozouj8.xyz/chengren18R.html)
 ## 2.  [日常追番](https://move.baozouj8.xyz/manhua.html)
 ## 3.  [精选狼漫](https://move.baozouj8.xyz/baozoulangman.html)
